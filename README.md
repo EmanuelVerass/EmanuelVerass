@@ -1,5 +1,5 @@
 - Hi, I’m Emanuel Veras
-- I’m interested in program games
+- I am interested in game programming
 - i like music
 - I have a brother who would really like me to work with him but I like medicine
 - I am 18 year
